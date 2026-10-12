@@ -1,0 +1,1229 @@
+WGHWHLNone—390023
+
+第六届中国（厦门）国际跨境电商展览会将凸显对接实效
+
+更新时间：2026-10-13  11:10:44
+
+栏目：AI Builders Digest　主题：第六届中国（厦门）国际跨境电商展览会将凸显对接实效
+
+摘要 中新网厦门5月27日电 (林永传)27日在厦门举行的第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)新闻通气会通报，第六届中跨展将于6月8日至10日在厦门国际会展中心举办。 据厦门市贸促会党组书记、会长，厦门国际商会会长邱尖介绍，第六届中跨展以 “跨境互联 货通全球” 为主题，展览面积超过5万平方米，设置1500余个国际标准展位，全国30多个优质产业带、近千家源头工厂，30多家全球主流跨境电商平台和上百家生态服务商将同台亮相。 邱
+
+正文 中新网厦门5月27日电 (林永传)27日在厦门举行的第六届中国(厦门)国际跨境电商展览会(简称“中跨展”)新闻通气会通报，第六届中跨展将于6月8日至10日在厦门国际会展中心举办。
+
+据厦门市贸促会党组书记、会长，厦门国际商会会长邱尖介绍，第六届中跨展以 “跨境互联 货通全球” 为主题，展览面积超过5万平方米，设置1500余个国际标准展位，全国30多个优质产业带、近千家源头工厂，30多家全球主流跨境电商平台和上百家生态服务商将同台亮相。
+
+邱尖说，本届展会持续夯实 “跨境电商+产业带” 核心发展模式，搭建 “一展览全国好品、一站通全球订单” 的高效对接平台。
+
+展会期间将举办20余场高品质配套活动，聚焦AI智能体、GEO生成引擎优化、RPA自动化等前沿应用，特别关注OPC一人公司如何利用AI实现轻量化全球运营。
+
+展会组委会充分发挥贸促系统海外联络渠道进行客商邀约，持续凸显对接实效。
+
+目前，来自新加坡、泰国、马来西亚、印度尼西亚、菲律宾、韩国、巴西、墨西哥、德国、塞尔维亚、摩尔多瓦、巴基斯坦、赞比亚等国20余家驻华外交机构和境外经贸机构等已确认携采购商来厦对接。
+
+中国(厦门)国际跨境电商展览会，简称“中跨展”，是经中国贸促会批准，国际展览业协会UFI认证的全国性跨境电商专业展会。
+
+前五届累计参展企业超3000家，展览总面积超25万平方米，专业客商超30万人次，意向成交额超百亿元人民币，先后促成了谷歌全球首个跨境电商加速中心、亚马逊全球开店产业带加速器项目、速卖通福建商家运营中心、新蛋厦门运营中心等项目落地。
+
+(完)
+
+智神星一号运载火箭完成首次发射任务，试验取得成功新华网
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%84%A6%E7%82%B9%E5%AF%B9%E8%AF%9D%EF%BC%9A-%E6%96%B0%E5%8D%9A88%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E7%BD%91%E6%98%93%E5%9E%82%E9%92%93.md?sir=ylw
+
+布基纳法索芝麻贸易渠道受阻，冲突干扰油料外运
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%84%A6%E7%82%B9%E5%AF%B9%E8%AF%9D%EF%BC%9A-%E6%96%B0%E5%8D%9A88%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E7%BD%91%E6%98%93%E5%9E%82%E9%92%93.md?fbc=10p
+
+开源 AI 代码异味检测工具接入大模型
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E6%96%B9%E5%90%91%E8%A1%A1%E6%B5%8B_-%E6%96%B0%E5%8D%9A88%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E6%90%9C%E7%8B%90%E7%BE%BD%E6%AF%9B%E7%90%83.md?gmi=v25
+
+科创企业知识产权培训圆满结束
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E6%96%B9%E5%90%91%E8%A1%A1%E6%B5%8B_-%E6%96%B0%E5%8D%9A88%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E6%90%9C%E7%8B%90%E7%BE%BD%E6%AF%9B%E7%90%83.md?qpi=ywg
+
+城市河岸夜景灯光亮化升级打造沿河夜间休闲长廊景点
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E9%98%85%E8%AF%BB%E6%8E%A8%E8%8D%90_-%E6%96%B0%E5%8D%9A88%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21CSDN%E6%BB%91%E9%9B%AA.md?5g2=x7r
+
+网络平台完善青少年网络保护，防范网络欺凌侵害青少年身心健康
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E9%98%85%E8%AF%BB%E6%8E%A8%E8%8D%90_-%E6%96%B0%E5%8D%9A88%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21CSDN%E6%BB%91%E9%9B%AA.md?2ma=cgd
+
+开源表单审批系统，搭建线上流程审批页面
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E9%87%8D%E5%A4%A7%E8%A6%81%E9%97%BB_-%E6%96%B0%E5%8D%9A88app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E6%96%B0%E5%8D%9A88%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21CSDN%E7%AF%AE%E7%90%83.md?l2w=wv4
+
+智慧园区光伏电站自发自用降成本
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E9%87%8D%E5%A4%A7%E8%A6%81%E9%97%BB_-%E6%96%B0%E5%8D%9A88app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E6%96%B0%E5%8D%9A88%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21CSDN%E7%AF%AE%E7%90%83.md?jmk=7e0
+
+线上文旅云游活动推介秀美山河
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E6%B7%B1%E5%BA%A6%E8%AE%BF%E8%B0%88%EF%BC%9A-%E6%96%B0%E5%8D%9A88app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E8%85%BE%E8%AE%AF%E5%A4%A9%E6%96%87.md?kno=yln
+
+AI 内容行业监管新规正式落地 行业发展秩序得到规范
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E6%B7%B1%E5%BA%A6%E8%AE%BF%E8%B0%88%EF%BC%9A-%E6%96%B0%E5%8D%9A88app%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E8%85%BE%E8%AE%AF%E5%A4%A9%E6%96%87.md?f6r=ndo
+
+老旧小区改造工程提速 居民居住品质再升级
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2027%E7%A7%91%E6%99%AE%E8%8A%82%E8%83%BD_-%E6%96%B0%E5%8D%9A88%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%A4%B4%E6%9D%A1%E8%81%8C%E5%9C%BA.md?ig4=lq4
+
+全球跨境知识产权服务贸易，专利商标代理服务实现跨境输出
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2027%E7%A7%91%E6%99%AE%E8%8A%82%E8%83%BD_-%E6%96%B0%E5%8D%9A88%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%A4%B4%E6%9D%A1%E8%81%8C%E5%9C%BA.md?l1k=i2t
+
+社区生鲜便民店落地小区 买菜购物更便捷
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E8%83%8C%E6%99%AF%E5%AF%BB%E8%B8%AA_-%E6%96%B0%E5%8D%9A88%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E6%96%B0%E5%8D%9A88%E5%9C%B0%E5%9D%80%2C%E6%96%B0%E5%8D%9A88%E7%BD%91%E5%9D%80%2C%E6%96%B0%E5%8D%9A88app%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E8%8A%92%E6%9E%9C%E5%88%B6%E9%80%A0.md?ocn=hdj
+
+多地开展打击电信网络黑灰产，切断诈骗犯罪技术支撑链条
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E8%83%8C%E6%99%AF%E5%AF%BB%E8%B8%AA_-%E6%96%B0%E5%8D%9A88%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E6%96%B0%E5%8D%9A88%E5%9C%B0%E5%9D%80%2C%E6%96%B0%E5%8D%9A88%E7%BD%91%E5%9D%80%2C%E6%96%B0%E5%8D%9A88app%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E8%8A%92%E6%9E%9C%E5%88%B6%E9%80%A0.md?25z=gdf
+
+全球跨境养老医疗咨询业务，医疗养老机构出海前期咨询服务
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E8%81%9A%E7%84%A6%E5%BF%AB%E6%8A%A5%EF%BC%9A-%E6%96%B0%E5%8D%9A88%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%96%B0%E5%8D%9A88%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E5%A4%B4%E6%9D%A1%E7%AF%AE%E7%90%83.md?7py=rft
+
+开源语音转文字仓库，音频批量生成文稿字幕
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E8%81%9A%E7%84%A6%E5%BF%AB%E6%8A%A5%EF%BC%9A-%E6%96%B0%E5%8D%9A88%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%96%B0%E5%8D%9A88%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E5%A4%B4%E6%9D%A1%E7%AF%AE%E7%90%83.md?jr4=uno
+
+乡村旅游合作社挂牌成立 抱团发展乡村文旅新业态
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E8%A7%86%E7%82%B9_-%E6%96%B0%E5%8D%9A88%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E7%99%BE%E5%BA%A6%E6%82%AC%E7%96%91.md?zgy=27o
+
+多地推进城市雨洪调蓄塘建设，调蓄暴雨径流削减城市内涝发生风险点
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E8%A7%86%E7%82%B9_-%E6%96%B0%E5%8D%9A88%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E7%99%BE%E5%BA%A6%E6%82%AC%E7%96%91.md?bme=97w
+
+农村公路安防生命防护工程顺利验收通车
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%AC%AC%E4%B8%80%E4%B8%AD%E5%BF%83_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E6%96%B0%E6%B5%AA%E5%AE%B6%E5%B1%85.md?3p8=crv
+
+开源健身动作捕捉仓库，识别用户运动姿态动作
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%AC%AC%E4%B8%80%E4%B8%AD%E5%BF%83_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E6%96%B0%E6%B5%AA%E5%AE%B6%E5%B1%85.md?sn1=ky1
+
+全球 CBDC 跨境试点持续推进，探索央行数字货币跨境使用场景
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%AC%AC%E4%B8%80%E6%9C%88%E5%88%8A_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%8A%92%E6%9E%9C%E9%87%91%E8%9E%8D.md?95f=3pq
+
+高标准农田建设验收收官 粮食综合生产能力得到提升
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%AC%AC%E4%B8%80%E6%9C%88%E5%88%8A_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E8%8A%92%E6%9E%9C%E9%87%91%E8%9E%8D.md?mqi=uam
+
+哈萨克斯坦甜菜库存充足，食糖出口保持稳定输出
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2027%E7%A7%92%E6%87%82%E7%B2%BE%E8%AF%BB_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E4%BA%AC%E4%B8%9C%E5%92%96%E5%95%A1.md?uq1=j29
+
+乡村路灯智能化改造完工远程管控
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2027%E7%A7%92%E6%87%82%E7%B2%BE%E8%AF%BB_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E4%BA%AC%E4%B8%9C%E5%92%96%E5%95%A1.md?en4=yfj
+
+开源 Git 日志助手，自然语言解读版本变更历史
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E5%90%88%E4%BD%9C_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E6%8B%BC%E5%A4%9A%E5%A4%9A%E5%AE%B6%E5%B1%85.md?xg1=8rs
+
+国产开源操作系统新版本发布 生态持续壮大
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E5%90%88%E4%BD%9C_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E6%8B%BC%E5%A4%9A%E5%A4%9A%E5%AE%B6%E5%B1%85.md?g44=lgu
+
+河湖增殖放流活动举行 恢复水生生物种群
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%9E%E6%93%8D%E6%94%BB%E7%95%A5_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E6%96%B0%E5%8D%9A88%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E4%BA%AC%E4%B8%9C%E5%8F%A4%E8%91%A3.md?yct=ejz
+
+马来西亚棕榈油进入减产周期，油脂价格获得支撑
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%9E%E6%93%8D%E6%94%BB%E7%95%A5_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E6%96%B0%E5%8D%9A88%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E4%BA%AC%E4%B8%9C%E5%8F%A4%E8%91%A3.md?6gg=ztb
+
+生活物资供应企业加大备货量保障旺季物资充足
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%AC%AC%E4%B8%80%E5%AF%BC%E8%AF%BB_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E7%88%B1%E5%A5%87%E8%89%BA%E6%91%84%E5%BD%B1.md?fnd=35h
+
+国内农村精神文明建设持续推进，弘扬文明乡风良好家风民风
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%AC%AC%E4%B8%80%E5%AF%BC%E8%AF%BB_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E7%88%B1%E5%A5%87%E8%89%BA%E6%91%84%E5%BD%B1.md?w4a=tse
+
+开源内网实时 AI 语音转文字工具开源
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2027%E7%99%BE%E5%BA%A6%E9%80%9A%E7%9F%A5_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E6%90%9C%E7%8B%90%E5%BD%B1%E8%A7%86.md?wsw=vnk
+
+美股挂钩产品设计服务商，高利率改变农产品挂钩产品设计
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2027%E7%99%BE%E5%BA%A6%E9%80%9A%E7%9F%A5_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E6%90%9C%E7%8B%90%E5%BD%B1%E8%A7%86.md?b87=uv0
+
+红色研学旅游线路火热推出传承红色革命文化
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E4%B8%93%E9%A2%98_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C360%E4%BD%93%E8%82%B2.md?3jq=7gb
+
+缅甸大米新季上市，东南亚稻米市场供给更加宽松
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E4%B8%93%E9%A2%98_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C360%E4%BD%93%E8%82%B2.md?n3z=lfm
+
+巴西甘蔗榨季稳步推进，糖厂灵活切换食糖乙醇产出比例
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2027%E5%AE%98%E6%96%B9%E7%BA%AA%E8%A6%81_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E7%99%BE%E5%BA%A6%E7%94%9F%E7%89%A9.md?nem=igz
+
+市场监管部门整治保健品会销骗局，打击会销忽悠老年群体购买保健品
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2027%E5%AE%98%E6%96%B9%E7%BA%AA%E8%A6%81_-%E6%96%B0%E5%8D%9A88%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E7%99%BE%E5%BA%A6%E7%94%9F%E7%89%A9.md?lx3=ku2
+
+开源依赖风险预警推送，高危漏洞即时通知管理员
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2027%E7%A7%91%E6%99%AE%E6%9D%A1%E4%BB%B6_-%E6%96%B0%E5%8D%9A88%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E6%96%B0%E5%8D%9A88QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E6%96%B0%E5%8D%9A88%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E5%87%A4%E5%87%B0%E6%95%A3%E6%96%87.md?68r=bk4
+
+中消协发布消费提示，提醒警惕 AI 服务误导消费决策新华网
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2027%E7%A7%91%E6%99%AE%E6%9D%A1%E4%BB%B6_-%E6%96%B0%E5%8D%9A88%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E6%96%B0%E5%8D%9A88QQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E6%96%B0%E5%8D%9A88%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E5%87%A4%E5%87%B0%E6%95%A3%E6%96%87.md?skg=kh4
+
+全球通信设备出口竞争加剧，地缘因素带来部分市场壁垒
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%AC%AC%E4%B8%80%E9%A2%84%E8%A7%81_-%E6%96%B0%E5%8D%9A88%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E6%96%B0%E5%8D%9A88QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E6%96%B0%E5%8D%9A88%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E7%9F%A5%E4%B9%8E%E7%94%B5%E5%95%86.md?yxh=2x6
+
+乌干达棉花库存回落，东非棉花出口报价有所抬升
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%AC%AC%E4%B8%80%E9%A2%84%E8%A7%81_-%E6%96%B0%E5%8D%9A88%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E6%96%B0%E5%8D%9A88QQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E6%96%B0%E5%8D%9A88%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E7%9F%A5%E4%B9%8E%E7%94%B5%E5%95%86.md?hg5=9ez
+
+美股动物福利适配服务商，畜禽出口适配海外动物福利标准
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2027%E7%AC%AC%E4%B8%80%E7%90%86%E8%B4%A2_-%E6%96%B0%E5%8D%9A88%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E6%96%B0%E5%8D%9A88QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E6%96%B0%E5%8D%9A88%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E9%A3%9E%E4%B9%A6%E7%A7%91%E5%B9%BB.md?8at=237
+
+开源 Go 语言 API 网关 AI 限流智能调度更新
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2027%E7%AC%AC%E4%B8%80%E7%90%86%E8%B4%A2_-%E6%96%B0%E5%8D%9A88%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E6%96%B0%E5%8D%9A88QQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E6%96%B0%E5%8D%9A88%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E9%A3%9E%E4%B9%A6%E7%A7%91%E5%B9%BB.md?q4o=uft
+
+AI 视频字幕生成框架上新，音频批量产出字幕文稿
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%AC%AC%E4%B8%80%E7%A7%91%E6%99%AE%20%21-%E6%96%B0%E5%8D%9A88%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E6%96%B0%E5%8D%9A88%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21CSDN%E8%AF%84%E6%B5%8B.md?9fc=1ai
+
+开源自托管 GitHub 镜像同步工具开源
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%AC%AC%E4%B8%80%E7%A7%91%E6%99%AE%20%21-%E6%96%B0%E5%8D%9A88%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E6%96%B0%E5%8D%9A88%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21CSDN%E8%AF%84%E6%B5%8B.md?90a=qlt
+
+国内农村移风易俗持续推进，抵制大操大办铺张浪费陈规陋习
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E5%AE%88%E5%88%99_-%E6%96%B0%E5%8D%9A88%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E7%99%BE%E5%BA%A6%E5%89%A7%E6%9C%AC%E6%9D%80.md?3kc=9ic
+
+全球基差波动加大，现货期货价格出现阶段性背离
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E5%AE%88%E5%88%99_-%E6%96%B0%E5%8D%9A88%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E7%99%BE%E5%BA%A6%E5%89%A7%E6%9C%AC%E6%9D%80.md?ruu=iul
+
+俄罗斯小麦品质参差不齐，部分小麦只能用作饲料粮
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%AC%AC%E4%B8%80%E8%B0%83%E6%9F%A5_-%E6%96%B0%E5%8D%9A88%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%BF%AB%E6%89%8B%E5%85%BB%E7%94%9F.md?cls=22m
+
+科创成果展厅迎来大批企业参观者
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%AC%AC%E4%B8%80%E8%B0%83%E6%9F%A5_-%E6%96%B0%E5%8D%9A88%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%BF%AB%E6%89%8B%E5%85%BB%E7%94%9F.md?wmd=qsy
+
+全球跨境 REITs 市场发展，不动产投资实现跨境流通交易
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%85%A8%E5%9F%9F%E7%BB%BC%E8%A7%88_-%E6%96%B0%E5%8D%9A88%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21B%E7%AB%99%E8%AF%BB%E4%B9%A6.md?wm0=0nq
+
+G20 推动全球税制改革，数字税谈判取得阶段性进展
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%85%A8%E5%9F%9F%E7%BB%BC%E8%A7%88_-%E6%96%B0%E5%8D%9A88%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21B%E7%AB%99%E8%AF%BB%E4%B9%A6.md?2u8=1fv
+
+开源异地备份监控看板，查看灾备任务执行状态
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2027%E7%A7%91%E6%99%AE%E8%B4%A1%E7%8C%AE_-%E6%96%B0%E5%8D%9A88%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E7%BD%91%E6%98%93%E7%A9%BF%E6%90%AD.md?psv=9af
+
+开源本地大模型推理显存自动调度优化脚本更新
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2027%E7%A7%91%E6%99%AE%E8%B4%A1%E7%8C%AE_-%E6%96%B0%E5%8D%9A88%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E7%BD%91%E6%98%93%E7%A9%BF%E6%90%AD.md?gkl=pom
+
+开源一键搭建本地 AI 工作站脚本更新
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E9%87%8D%E7%82%B9%E6%8C%87%E5%8D%97_-%E6%96%B0%E5%8D%9A88%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E5%8D%9A88%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E5%8D%9A88%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E9%A3%9E%E4%B9%A6%E9%9F%B3%E4%B9%90.md?tlb=dzq
+
+开源表单审批系统，搭建线上流程审批页面
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E9%87%8D%E7%82%B9%E6%8C%87%E5%8D%97_-%E6%96%B0%E5%8D%9A88%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E5%8D%9A88%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E5%8D%9A88%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E9%A3%9E%E4%B9%A6%E9%9F%B3%E4%B9%90.md?aub=73l
+
+部分城市试点智慧公交调度系统，优化公交发车班次提升运营效率
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%91%E6%99%AE%E6%8A%A5%E5%91%8A_-%E6%96%B0%E5%8D%9A88%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E5%8D%9A88%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E5%8D%9A88%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E3%80%8CONE_%E4%B8%80%E4%B8%AA%EF%BC%88%E6%96%87%E8%89%BA%EF%BC%89%E3%80%8D.md?wbq=24g
+
+莫桑比克热带气旋过境，腰果、玉米作物遭受严重损毁
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%91%E6%99%AE%E6%8A%A5%E5%91%8A_-%E6%96%B0%E5%8D%9A88%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E5%8D%9A88%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E5%8D%9A88%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E3%80%8CONE_%E4%B8%80%E4%B8%AA%EF%BC%88%E6%96%87%E8%89%BA%EF%BC%89%E3%80%8D.md?l7f=98c
+
+网络平台清理网络暴力内容，建立网络暴力防护处置机制
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E8%81%94%E7%BB%93_-%E6%96%B0%E5%8D%9A88%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E5%8D%9A88%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E5%8D%9A88%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E5%B0%8F%E7%B1%B3%E8%80%83%E5%8F%A4.md?fai=9so
+
+美股短视频技术服务商订单增长，内容电商蓬勃发展
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E8%81%94%E7%BB%93_-%E6%96%B0%E5%8D%9A88%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E5%8D%9A88%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E5%8D%9A88%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E5%B0%8F%E7%B1%B3%E8%80%83%E5%8F%A4.md?69t=xgo
+
+全球有机谷物溢价收缩，有机农产品贸易增速明显放缓
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%9F%A5%E8%AF%86%E6%99%AE%E5%8F%8A%EF%BC%9A-%E6%96%B0%E5%8D%9A88%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%96%B0%E5%8D%9A88%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E8%B0%B7%E6%AD%8C%E7%83%AD%E7%82%B9.md?48t=ajv
+
+应急救援队伍跨区域联合演练开展磨合多地救援协作力量团队组织任务目标方向对策
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%9F%A5%E8%AF%86%E6%99%AE%E5%8F%8A%EF%BC%9A-%E6%96%B0%E5%8D%9A88%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%96%B0%E5%8D%9A88%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E8%B0%B7%E6%AD%8C%E7%83%AD%E7%82%B9.md?zq1=a56
+
+开源物联网边缘 AI 模型降级调度框架新版本更新上线
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%91%E6%99%AE%E8%BF%BD%E5%85%89_-%E6%96%B0%E5%8D%9A88%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E7%BE%8E%E5%9B%A2%E7%BE%8E%E9%A3%9F.md?rvo=4rx
+
+巴拉圭柑橘出口增长，南美鲜果远销全球多地市场
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%91%E6%99%AE%E8%BF%BD%E5%85%89_-%E6%96%B0%E5%8D%9A88%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E7%BE%8E%E5%9B%A2%E7%BE%8E%E9%A3%9F.md?e68=507
+
+开源 Git 日志助手，自然语言解读版本变更历史
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E8%B5%84%E6%B7%B1%E7%A0%94%E5%88%A4_-%E6%96%B0%E5%8D%9A88%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%A4%B4%E6%9D%A1%E7%BB%98%E6%9C%AC.md?rg7=60g
+
+央行披露二季度末全国银行开立账户总量达一百五十六点五八亿户
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E8%B5%84%E6%B7%B1%E7%A0%94%E5%88%A4_-%E6%96%B0%E5%8D%9A88%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%A4%B4%E6%9D%A1%E7%BB%98%E6%9C%AC.md?hcp=vxo
+
+国产新型海水养殖网箱投入使用，拓展深远海养殖发展空间
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%91%E6%99%AE%E7%AC%94%E8%AE%B0_-%E6%96%B0%E5%8D%9A88%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E7%BE%8E%E5%9B%A2%E5%85%AC%E8%80%83.md?fk9=6u9
+
+开源服务器巡检脚本，定时检测主机负载状态
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%91%E6%99%AE%E7%AC%94%E8%AE%B0_-%E6%96%B0%E5%8D%9A88%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E7%BE%8E%E5%9B%A2%E5%85%AC%E8%80%83.md?hrs=jma
+
+美股自动驾驶开支收缩服务商，部分企业缩减自动驾驶开支
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%8F%B2%E6%96%99%E8%80%83%E5%BD%95_-%E6%96%B0%E5%8D%9A88%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E6%96%B0%E6%B5%AA%E6%B2%99%E6%BC%A0.md?jit=353
+
+全球生物多样性保护相关贸易约束，影响农林产品跨境贸易
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%8F%B2%E6%96%99%E8%80%83%E5%BD%95_-%E6%96%B0%E5%8D%9A88%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E6%96%B0%E6%B5%AA%E6%B2%99%E6%BC%A0.md?aux=jla
+
+美国开心果库存累积，北美坚果出口价格承压下行
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%BD%A9%E6%B0%91%E9%98%94%E5%AE%81_-%E6%96%B0%E5%8D%9A88%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E4%BA%AC%E4%B8%9C%E6%88%BF%E4%BA%A7.md?vnq=93l
+
+国产新型船舶脱硫装置投用，减少船舶航行大气污染物排放
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%BD%A9%E6%B0%91%E9%98%94%E5%AE%81_-%E6%96%B0%E5%8D%9A88%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E4%BA%AC%E4%B8%9C%E6%88%BF%E4%BA%A7.md?cw5=5mg
+
+社区健康科普宣传栏定期更新 普及养生健康小知识
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E6%96%B9%E6%B3%95_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E6%96%B0%E5%9F%8E%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E9%A3%9E%E4%B9%A6%E5%BD%A9%E5%A6%86.md?2er=027
+
+全球农业机械出口需求分化，部分地区农户购买力偏弱
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E6%96%B9%E6%B3%95_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E6%96%B0%E5%9F%8E%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E9%A3%9E%E4%B9%A6%E5%BD%A9%E5%A6%86.md?fkh=lkv
+
+政务服务视频远程帮办窗口上线远程指导群众填报各类材料
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E9%98%85%E8%AF%BB%E6%8E%A8%E8%8D%90_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%BF%AB%E6%89%8B%E8%81%8C%E5%9C%BA.md?r5w=pxh
+
+全球家族信托跨境服务发展，帮助家族管理跨国家族资产
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E9%98%85%E8%AF%BB%E6%8E%A8%E8%8D%90_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%BF%AB%E6%89%8B%E8%81%8C%E5%9C%BA.md?p7g=vii
+
+中小企业市场拓展补贴发放支持企业外出参展
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%92%E6%87%82%E9%80%9F%E7%9C%8B%E7%89%88_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%AF%8D%E5%A9%B4.md?qot=gln
+
+跨区域旅游推介周举办多地文旅资源集中亮相展出宣传
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%92%E6%87%82%E9%80%9F%E7%9C%8B%E7%89%88_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%AF%8D%E5%A9%B4.md?m9t=82x
+
+开源本地知识库桌面端 AI 文档分类优化升级
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%B9%B4%E5%BA%A6%E9%80%9F%E8%A7%88_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E6%90%9C%E7%8B%90%E6%8B%B3%E5%87%BB.md?8nw=94r
+
+肯尼亚玉米库存紧张，东非粮食进口需求维持高位
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%B9%B4%E5%BA%A6%E9%80%9F%E8%A7%88_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E6%90%9C%E7%8B%90%E6%8B%B3%E5%87%BB.md?soy=pai
+
+美股农产品包装材料企业业绩分化，消费周期决定订单量
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%AC%AC%E4%B8%80%E6%96%B0%E7%9F%A5_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E6%97%B6%E8%AE%AF.md?q3g=c1w
+
+多地开学季严查校园周边食品，守护学生饮食消费安全健康
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%AC%AC%E4%B8%80%E6%96%B0%E7%9F%A5_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E6%97%B6%E8%AE%AF.md?046=exs
+
+特色餐饮街区升级改造完工 夜间消费升温
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%85%A8%E9%9D%A2%E5%AF%BC%E8%AF%BB_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5CSDN%E7%94%9F%E7%89%A9.md?88h=hde
+
+校园食堂食材阳光公示栏每日更新食材采购明细相关信息内容条目要点数据
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%85%A8%E9%9D%A2%E5%AF%BC%E8%AF%BB_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5CSDN%E7%94%9F%E7%89%A9.md?hyz=w6o
+
+布基纳法索腰果种植扩张，非洲坚果产业持续壮大
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%91%E6%99%AE%E6%99%BA%E8%83%BD_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E6%96%B0%E5%9F%8E%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21CSDN%E5%AE%B6%E5%B1%85.md?73w=t5c
+
+城市内河生态治理三期工程开工持续改善河道水环境质量
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%91%E6%99%AE%E6%99%BA%E8%83%BD_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E6%96%B0%E5%9F%8E%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21CSDN%E5%AE%B6%E5%B1%85.md?ksi=ae8
+
+科创人才交流会成功引进多名高层次人才
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%92%E6%87%82%E9%80%9F%E9%80%92_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E7%AE%80%E4%B9%A6%E8%81%8C%E5%9C%BA.md?ixc=mia
+
+美股海洋农业投资刚刚起步服务商，海洋农业产业链投资刚刚起步
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%92%E6%87%82%E9%80%9F%E9%80%92_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E7%AE%80%E4%B9%A6%E8%81%8C%E5%9C%BA.md?9i9=xiq
+
+开源电子书籍章节生成仓库，产出完整图书正文
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E8%BD%B0%E5%8A%A8%E4%B8%80%E6%97%B6%EF%BC%9A-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E5%B0%8F%E7%B1%B3%E4%B9%A6%E6%B3%95.md?41v=i8s
+
+食品安全短视频创作大赛开赛 普及健康饮食常识
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E8%BD%B0%E5%8A%A8%E4%B8%80%E6%97%B6%EF%BC%9A-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E5%B0%8F%E7%B1%B3%E4%B9%A6%E6%B3%95.md?b6h=iky
+
+布基纳法索腰果库存下降，非洲坚果出口报价有所走强
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E8%82%8C%E7%90%86%E5%8E%98%E8%BE%A8_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E3%80%8C%E5%BC%80%E6%BA%90%E9%98%85%E8%AF%BB%EF%BC%88%E5%B0%8F%E8%AF%B4%EF%BC%89%E3%80%8D.md?mco=13o
+
+印尼扩大生物柴油掺混比例，棕榈油国内消费大增
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E8%82%8C%E7%90%86%E5%8E%98%E8%BE%A8_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E3%80%8C%E5%BC%80%E6%BA%90%E9%98%85%E8%AF%BB%EF%BC%88%E5%B0%8F%E8%AF%B4%EF%BC%89%E3%80%8D.md?bjg=mv3
+
+开源 AI 工作流编排引擎登上 GitHub 热榜
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%91%E6%99%AE%E9%97%AE%E7%AD%94_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21360%E6%95%B0%E6%8D%AE%E5%BA%93.md?58b=hf5
+
+社区便民医疗服务站新增夜间接诊服务方便居民下班就医
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%91%E6%99%AE%E9%97%AE%E7%AD%94_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21360%E6%95%B0%E6%8D%AE%E5%BA%93.md?txr=dtv
+
+食用农产品快速检测车下乡走进乡镇农贸市场
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%91%E6%99%AE%E5%8A%A0%E9%80%9F_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E6%96%B0%E5%9F%8E%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E8%B5%B7%E7%82%B9%E6%A3%AE%E6%9E%97.md?xai=amj
+
+美股城市化研究咨询机构订单增长，城市消费成为重点方向
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%91%E6%99%AE%E5%8A%A0%E9%80%9F_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E6%96%B0%E5%9F%8E%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E8%B5%B7%E7%82%B9%E6%A3%AE%E6%9E%97.md?aa5=iee
+
+美股新兴市场农产品饮料服务商，饮料出口格局发生改变
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E5%B7%85%E5%B3%B0_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E7%AE%80%E4%B9%A6%E8%AF%97%E6%AD%8C.md?t9c=rx6
+
+开源云原生 API 网关仓库，统一调度后端模型接口
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E5%B7%85%E5%B3%B0_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E7%AE%80%E4%B9%A6%E8%AF%97%E6%AD%8C.md?yzd=kts
+
+新能源汽车检测新规正式落地执行
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%9F%A5%E8%AF%86%E6%95%B4%E7%90%86%EF%BC%9A-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%85%BE%E8%AE%AF%E6%A3%AE%E6%9E%97.md?zis=zuv
+
+巴西咖啡开展溯源认证，精品咖啡获取更高市场溢价
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%9F%A5%E8%AF%86%E6%95%B4%E7%90%86%EF%BC%9A-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%85%BE%E8%AE%AF%E6%A3%AE%E6%9E%97.md?prp=7cj
+
+社区健康档案线上查询功能上线居民随时查看个人健康记录
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E8%84%89%E7%BB%9C%E6%A2%B3%E7%90%86_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E7%88%B1%E5%A5%87%E8%89%BA%E5%86%9C%E4%B8%9A.md?hwm=adz
+
+社区爱心洗衣站设立 免费为困难老人清洗衣物
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E8%84%89%E7%BB%9C%E6%A2%B3%E7%90%86_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E7%88%B1%E5%A5%87%E8%89%BA%E5%86%9C%E4%B8%9A.md?oel=ucl
+
+市场监管部门整治养老诈骗广告，清理针对老年群体虚假营销广告
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E5%AF%BC%E8%88%AA_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21CSDN%E8%B7%91%E9%85%B7.md?rhc=v9z
+
+高标准农田建设验收收官 粮食综合生产能力得到提升
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E5%AF%BC%E8%88%AA_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21CSDN%E8%B7%91%E9%85%B7.md?653=bke
+
+开源物联网边缘 AI 推理低功耗方案开源
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%92%E6%87%82%E6%97%A5%E6%8A%A5_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E9%92%89%E9%92%89%E6%89%8B%E5%8A%9E.md?ox5=lhb
+
+绿色出行主题宣传活动走进商圈 引导低碳生活方式
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%92%E6%87%82%E6%97%A5%E6%8A%A5_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E9%92%89%E9%92%89%E6%89%8B%E5%8A%9E.md?1av=da8
+
+这个属于新媒体标题库类内容，工作任务模式可以补齐配图方案、选题梳理、批量校验与排版，要不要用它继续？
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E9%A3%8E%E5%90%91%E6%B4%9E%E5%AF%9F_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%96%B0%E5%9F%8E%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E7%AE%80%E4%B9%A6%E8%A7%82%E5%AF%9F.md?usv=qun
+
+开源供应链培训资料下载，赋能开发者自查风险
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E9%A3%8E%E5%90%91%E6%B4%9E%E5%AF%9F_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%96%B0%E5%9F%8E%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E7%AE%80%E4%B9%A6%E8%A7%82%E5%AF%9F.md?0vl=vqm
+
+社区健康科普短视频定期推送线上普及养生防病知识
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%92%E6%87%82%E5%A4%A7%E8%AE%B2%E5%A0%82_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E6%90%9C%E7%8B%90%E7%BE%BD%E6%AF%9B%E7%90%83.md?sj9=wxx
+
+AI 办公助手免费版本上线 降低中小企业办公成本
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E7%A7%92%E6%87%82%E5%A4%A7%E8%AE%B2%E5%A0%82_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E6%90%9C%E7%8B%90%E7%BE%BD%E6%AF%9B%E7%90%83.md?b27=jzo
+
+老旧小区垃圾分类投放点升级改造
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E9%80%9A%E6%82%9F_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E8%85%BE%E8%AE%AF%E6%88%BF%E4%BA%A7.md?b4b=4kp
+
+科研团队研发新型储能电池，兼顾高能量密度与循环寿命
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%AE%98%E6%96%B9%E9%80%9A%E6%82%9F_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E8%85%BE%E8%AE%AF%E6%88%BF%E4%BA%A7.md?698=7y8
+
+尼日利亚推进外汇改革，着力缓解国内美元短缺困境
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E6%8A%A2%E5%85%88%E6%8A%AB%E9%9C%B2%EF%BC%9A-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%8A%92%E6%9E%9C%E6%B1%BD%E8%BD%A6.md?x69=teq
+
+城市骑行绿道配套驿站建成休息补给更加方便
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E6%8A%A2%E5%85%88%E6%8A%AB%E9%9C%B2%EF%BC%9A-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%8A%92%E6%9E%9C%E6%B1%BD%E8%BD%A6.md?omc=st7
+
+菲律宾玉米库存回落，东南亚饲料谷物出口报价抬升
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E8%A1%8C%E4%B8%9A%E4%BF%AF%E5%AF%9F_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E8%B0%B7%E6%AD%8C%E5%81%A5%E5%BA%B7.md?4ai=0rl
+
+开源电商客户管理系统，搭建轻量化 CRM 项目
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E8%A1%8C%E4%B8%9A%E4%BF%AF%E5%AF%9F_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E8%B0%B7%E6%AD%8C%E5%81%A5%E5%BA%B7.md?ysk=sr2
+
+开源语音转文字仓库，音频批量生成文稿字幕
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/%E7%AC%AC%E4%B8%80%E7%AF%87%E5%B9%85%E4%B8%A8-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E8%B1%86%E7%93%A3%E5%A4%A7%E6%95%B0%E6%8D%AE.md?ig6=54p
+
+美股实体企业套保工具服务商，商品期权工具持续普及
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/%E7%AC%AC%E4%B8%80%E7%AF%87%E5%B9%85%E4%B8%A8-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E8%B1%86%E7%93%A3%E5%A4%A7%E6%95%B0%E6%8D%AE.md?qyr=gbb
+
+河湖长制巡查数字化平台正式上线
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%B9%B4%E5%BA%A6%E7%9B%98%E7%82%B9_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E7%99%BE%E5%BA%A6%E9%9D%9E%E9%81%97.md?cnr=3wj
+
+国内城市餐厨垃圾处理能力提升，推动厨余垃圾资源化利用
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/2026%E5%B9%B4%E5%BA%A6%E7%9B%98%E7%82%B9_-%E6%96%B0%E5%9F%8E%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E7%99%BE%E5%BA%A6%E9%9D%9E%E9%81%97.md?ast=xg7
+
+企业技术创新成果发布会举行发布多款自研新技术新产品成果物件
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/%E4%BB%8B%E7%BB%8D%E7%AC%AC%E4%B8%80_-%E6%96%B0%E5%9F%8E%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E8%85%BE%E8%AE%AF%E5%8C%BB%E7%BE%8E.md?b1y=5pr
+
+青少年科创大赛圆满落幕 优秀创新项目涌现
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/%E4%BB%8B%E7%BB%8D%E7%AC%AC%E4%B8%80_-%E6%96%B0%E5%9F%8E%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E8%85%BE%E8%AE%AF%E5%8C%BB%E7%BE%8E.md?ezj=8dy
+
+阿根廷高粱库存下降，饲料谷物出口报价有所走强
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/README.md?4q8=3dg
+
+新一代静止轨道气象卫星发射，单星综合探测能力全球领先央视新闻
+
+| 来源：https://github.com/ktosm/tokenq2/blob/main/README.md?0eo=y4p
+
+全球储能配套政策完善，储能成为能源转型关键支撑环节
+
+| 来源：https://github.com/ktosm/tokenq3?ren=1j7
+
+英国养老金重新调整久期，吸取过往债市危机的教训
+
+| 来源：https://github.com/ktosm/tokenq3?eus=sl0
+
+开源前端打包 AI 产物依赖风险可视化插件开放源码
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%85%A8%E6%B0%91%E8%AE%AE%E9%A2%98%EF%BC%9A-%E6%96%B0%E5%9F%8Eapp%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88360%E6%B0%B4%E6%97%8F.md?ph3=je8
+
+科研团队解析果树抗逆基因资源，助力果树应对干旱冻害灾害
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%85%A8%E6%B0%91%E8%AE%AE%E9%A2%98%EF%BC%9A-%E6%96%B0%E5%9F%8Eapp%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88360%E6%B0%B4%E6%97%8F.md?il3=shf
+
+美股园区债风险规避服务商，海外投资者规避农业园区美元债
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%B2%BE%E8%A6%81%E8%AF%BE%E5%A0%82_-%E6%96%B0%E5%9F%8E%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%A4%B4%E6%9D%A1%E5%88%9B%E6%8A%95.md?9kg=h2u
+
+美股转型金融咨询服务商业务扩容，高排放行业低碳转型
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%B2%BE%E8%A6%81%E8%AF%BE%E5%A0%82_-%E6%96%B0%E5%9F%8E%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%A4%B4%E6%9D%A1%E5%88%9B%E6%8A%95.md?zly=ag6
+
+全球跨境灾害风险联动机制建设，降低灾害跨境传导损失
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%A7%92%E6%87%82%E5%AE%9E%E6%B5%8B_-%E6%96%B0%E5%9F%8E%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E6%96%B0%E5%9F%8E%E5%9C%B0%E5%9D%80%2C%E6%96%B0%E5%9F%8E%E7%BD%91%E5%9D%80%2C%E6%96%B0%E5%9F%8Eapp%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E5%A4%B4%E6%9D%A1%E5%89%A7%E6%9C%AC%E6%9D%80.md?5c3=kz5
+
+开源离线图像 AI 风格迁移 Web 服务开放源代码
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%A7%92%E6%87%82%E5%AE%9E%E6%B5%8B_-%E6%96%B0%E5%9F%8E%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E6%96%B0%E5%9F%8E%E5%9C%B0%E5%9D%80%2C%E6%96%B0%E5%9F%8E%E7%BD%91%E5%9D%80%2C%E6%96%B0%E5%9F%8Eapp%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88%E5%A4%B4%E6%9D%A1%E5%89%A7%E6%9C%AC%E6%9D%80.md?wjt=nh2
+
+传统老字号推出潮流新品俘获年轻消费群体
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/35%E5%88%86%E9%92%9F%E8%AE%A4%E8%AF%86_-%E6%96%B0%E5%9F%8E%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%96%B0%E5%9F%8E%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E4%BC%98%E9%85%B7%E9%A3%8E%E7%94%B5.md?1q0=hob
+
+开源智能体权限管控组件，限制 AI 调用外部接口
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/35%E5%88%86%E9%92%9F%E8%AE%A4%E8%AF%86_-%E6%96%B0%E5%9F%8E%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%96%B0%E5%9F%8E%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E4%BC%98%E9%85%B7%E9%A3%8E%E7%94%B5.md?nn7=4kl
+
+全球船舶订单向亚洲集中，航运企业加大低碳船舶采购量
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E8%A7%82%E5%AF%9F%EF%BC%9A-%E6%96%B0%E5%9F%8E%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E5%A4%B4%E6%9D%A1%E5%85%BD%E5%8C%BB.md?tu2=6zp
+
+开源卫星遥感图像解析工具，航拍地理影像智能识别
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E8%A7%82%E5%AF%9F%EF%BC%9A-%E6%96%B0%E5%9F%8E%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E5%A4%B4%E6%9D%A1%E5%85%BD%E5%8C%BB.md?4kb=8em
+
+开源跨端大屏 AI 实时数据流告警拖拽生成可视化项目
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E7%BB%B4%E6%8A%A4_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E4%BA%AC%E4%B8%9C%E7%8E%89%E5%99%A8.md?lhj=jma
+
+阿根廷葵花籽库存累积，油脂出口供给保持宽松状态
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E7%BB%B4%E6%8A%A4_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E4%BA%AC%E4%B8%9C%E7%8E%89%E5%99%A8.md?166=obx
+
+社区老年助餐点新增晚餐服务 解决老人晚饭就餐难题
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%AE%9E%E6%88%98%E8%B7%AF%E5%BE%84_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E3%80%8C%E5%92%AA%E5%92%95%E8%A7%86%E9%A2%91%E3%80%8D.md?eqw=zde
+
+医保便民服务站进驻乡镇卫生院
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%AE%9E%E6%88%98%E8%B7%AF%E5%BE%84_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E3%80%8C%E5%92%AA%E5%92%95%E8%A7%86%E9%A2%91%E3%80%8D.md?471=57g
+
+澳大利亚小麦种植成本飙升，部分农户主动缩减播种面积人民网
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%96%B0%E5%90%AF%E7%A8%8B_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E9%A3%9E%E4%B9%A6%E6%88%B7%E5%A4%96.md?ovk=u8f
+
+开源离线文档 AI 问答长会话持久化 Web 服务开源
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%96%B0%E5%90%AF%E7%A8%8B_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E9%A3%9E%E4%B9%A6%E6%88%B7%E5%A4%96.md?ceh=upk
+
+跨境电商保税物流中心扩容完工提升货物周转效率
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E6%A0%B8%E5%BF%83_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E4%BC%98%E9%85%B7%E9%9D%9E%E9%81%97.md?d2c=86i
+
+秋季开学物资保供稳价市场货源充足
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E6%A0%B8%E5%BF%83_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E4%BC%98%E9%85%B7%E9%9D%9E%E9%81%97.md?cvz=dcw
+
+美国葡萄干开拓非洲市场，干果出口地域进一步多元化拓展
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E6%8A%95%E7%A8%BF_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E6%96%B0%E5%9F%8E%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E5%A4%B4%E6%9D%A1%E7%A1%AC%E4%BB%B6.md?pfm=spr
+
+加拿大豌豆库存下降，植物蛋白原料出口报价走强
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E6%8A%95%E7%A8%BF_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E6%96%B0%E5%9F%8E%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E5%A4%B4%E6%9D%A1%E7%A1%AC%E4%BB%B6.md?9vu=xpt
+
+开源团队周报汇总脚本，收集成员产出团队周报
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E5%9C%B0%E5%9B%BE_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E7%99%BE%E5%BA%A6%E6%9C%A8%E9%9B%95.md?8uk=fh0
+
+开源缓存故障排查工具箱，定位缓存异常根源
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E5%9C%B0%E5%9B%BE_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E7%99%BE%E5%BA%A6%E6%9C%A8%E9%9B%95.md?rij=35z
+
+氢能公交车示范线路正式载客运行
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%8F%91%E5%B8%83_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%94%80%E5%B2%A9.md?2sq=e90
+
+国产新型可降解渔网材料研发，减少废弃渔网造成海洋塑料污染问题
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%8F%91%E5%B8%83_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%94%80%E5%B2%A9.md?5y2=d40
+
+国产新型海上风电安装平台升级，适配更深海域海上风电施工作业
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%AD%A3%E5%BC%8F%E6%8E%A8%E5%87%BA%EF%BC%9A-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E5%BF%AB%E6%89%8B%E7%BD%91%E7%BB%9C.md?j1z=cth
+
+开源供应链培训资料下载，赋能开发者自查风险
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%AD%A3%E5%BC%8F%E6%8E%A8%E5%87%BA%EF%BC%9A-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E5%BF%AB%E6%89%8B%E7%BD%91%E7%BB%9C.md?8er=tms
+
+英国养老金重新调整久期，吸取过往债市危机的教训
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E8%A7%84%E5%88%99_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E8%85%BE%E8%AE%AF%E5%9B%BD%E9%99%85.md?7rt=tmb
+
+全球多地发布粮食浪费调查报告，消费端粮食浪费依旧占有较大比重
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E8%A7%84%E5%88%99_-%E6%96%B0%E5%9F%8E%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E8%85%BE%E8%AE%AF%E5%9B%BD%E9%99%85.md?on2=n5b
+
+欧洲企业债务违约小幅抬升，高利率效应逐步显现
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%BF%AB%E7%9F%A5%E8%AF%86_-%E6%96%B0%E5%9F%8E%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E6%96%B0%E5%9F%8EQQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E6%96%B0%E5%9F%8E%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E3%80%8A%E6%99%BA%E6%85%A7_%E6%96%87%E5%8C%96%E3%80%8B.md?oy4=k4n
+
+森林防火巡查智能化升级 隐患早发现早处置
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%BF%AB%E7%9F%A5%E8%AF%86_-%E6%96%B0%E5%9F%8E%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E6%96%B0%E5%9F%8EQQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E6%96%B0%E5%9F%8E%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E3%80%8A%E6%99%BA%E6%85%A7_%E6%96%87%E5%8C%96%E3%80%8B.md?5yw=95g
+
+义务教育学校教室照明改造完工 改善学生用眼环境
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E5%9F%9F%E5%90%8D_-%E6%96%B0%E5%9F%8E%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E6%96%B0%E5%9F%8EQQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E6%96%B0%E5%9F%8E%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E8%B0%B7%E6%AD%8C%E7%BE%8E%E5%A6%86.md?0v5=e0l
+
+全民健身线上挑战赛收官公布获奖参赛选手完整名单
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E5%9F%9F%E5%90%8D_-%E6%96%B0%E5%9F%8E%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E6%96%B0%E5%9F%8EQQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E6%96%B0%E5%9F%8E%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E8%B0%B7%E6%AD%8C%E7%BE%8E%E5%A6%86.md?3rw=9at
+
+城市智慧停车场车位实时查询小程序上线方便车主快速寻位
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%8E%9F%E9%80%89%E7%A7%91%E6%99%AE_-%E6%96%B0%E5%9F%8E%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E6%96%B0%E5%9F%8EQQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E6%96%B0%E5%9F%8E%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21360%E4%B9%A6%E6%B3%95.md?ffs=s8p
+
+美股次级制裁合规服务商，农企完善合规应对次级制裁风险
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%8E%9F%E9%80%89%E7%A7%91%E6%99%AE_-%E6%96%B0%E5%9F%8E%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E6%96%B0%E5%9F%8EQQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E6%96%B0%E5%9F%8E%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21360%E4%B9%A6%E6%B3%95.md?v56=uxo
+
+美国高粱优良率下滑，天气扰动饲料谷物供应预期
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%8B%BE%E8%90%83_-%E6%96%B0%E5%9F%8E%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E6%96%B0%E5%9F%8E%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E7%9F%A5%E4%B9%8E%E7%99%BB%E5%B1%B1.md?rx7=tnx
+
+开源内网知识库 AI 问答接口限流管控更新
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%8B%BE%E8%90%83_-%E6%96%B0%E5%9F%8E%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E6%96%B0%E5%9F%8E%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E7%9F%A5%E4%B9%8E%E7%99%BB%E5%B1%B1.md?rx2=nsd
+
+开源多模态知识库 RAG 视频音频图文问答开源上线
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/%E7%AC%AC%E4%B8%80%E6%B6%88%E6%81%AF%E3%80%8B-%E6%96%B0%E5%9F%8E%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E8%85%BE%E8%AE%AF%E6%9C%A8%E9%9B%95.md?hx1=yjs
+
+开源健身动作捕捉仓库，识别用户运动姿态动作
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/%E7%AC%AC%E4%B8%80%E6%B6%88%E6%81%AF%E3%80%8B-%E6%96%B0%E5%9F%8E%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E8%85%BE%E8%AE%AF%E6%9C%A8%E9%9B%95.md?3d6=pe6
+
+国内城市轨道交通智慧运维升级，提升地铁运行安全可靠性
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E8%B5%8B%E8%83%BD%E8%AE%B2%E5%A0%82_-%E6%96%B0%E5%9F%8E%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E9%A3%9E%E4%B9%A6%E7%9F%AD%E8%A7%86%E9%A2%91.md?q07=egb
+
+白俄罗斯谷物出口稳定，服务欧亚经济联盟内部需求
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E8%B5%8B%E8%83%BD%E8%AE%B2%E5%A0%82_-%E6%96%B0%E5%9F%8E%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E9%A3%9E%E4%B9%A6%E7%9F%AD%E8%A7%86%E9%A2%91.md?2ae=dwl
+
+开源孵化成果公布，首批扶持仓库迎来新版本更新
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%88%9B%E4%BD%9C_-%E6%96%B0%E5%9F%8E%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E8%8A%92%E6%9E%9C%E6%98%86%E8%99%AB.md?byt=nj3
+
+美股碳汇衍生品交易走高服务商，农林碳汇衍生品交易持续走高
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%88%9B%E4%BD%9C_-%E6%96%B0%E5%9F%8E%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E8%8A%92%E6%9E%9C%E6%98%86%E8%99%AB.md?kwb=qdf
+
+多地推进城市河道排污口排查整治，封堵整治河道各类非法排污口门
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E6%96%B0%E7%9F%A5_-%E6%96%B0%E5%9F%8E%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BE%E5%BA%A6%E4%B9%A6%E6%B3%95.md?q1l=2w0
+
+开源自动化接口测试工具，批量校验后端 API 可用性
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E6%96%B0%E7%9F%A5_-%E6%96%B0%E5%9F%8E%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BE%E5%BA%A6%E4%B9%A6%E6%B3%95.md?h24=5lu
+
+公共充电站点加密布局 缓解充电排队难题
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E5%9B%9E%E5%A4%8D_-%E6%96%B0%E5%9F%8E%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E5%9F%8E%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E5%9F%8E%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E4%BD%93%E8%82%B2.md?brf=5ud
+
+开源定时流水线任务工具，设置流水线执行周期
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E5%9B%9E%E5%A4%8D_-%E6%96%B0%E5%9F%8E%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E5%9F%8E%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E5%9F%8E%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E4%BD%93%E8%82%B2.md?ysj=uso
+
+农村饮水安全提质工程惠及数十万村民
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%83%AD%E7%82%B9%E8%AE%BF%E8%B0%88%EF%BC%9A-%E6%96%B0%E5%9F%8E%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E5%9F%8E%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E5%9F%8E%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E7%BD%91%E6%98%93%E5%BC%82%E5%AE%A0.md?614=0hu
+
+粮农组织警示极端气候，农业减产风险向全球扩散
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%83%AD%E7%82%B9%E8%AE%BF%E8%B0%88%EF%BC%9A-%E6%96%B0%E5%9F%8E%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E5%9F%8E%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E5%9F%8E%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E7%BD%91%E6%98%93%E5%BC%82%E5%AE%A0.md?zrw=k88
+
+美股农业产业园招商咨询服务商，部分园区招商不及预期
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E6%8E%92%E5%90%8D_-%E6%96%B0%E5%9F%8E%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E5%9F%8E%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E5%9F%8E%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E6%90%9C%E7%8B%90%E5%86%9C%E4%B8%9A.md?9lj=oe5
+
+文旅景区智慧检票系统全面升级
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E6%8E%92%E5%90%8D_-%E6%96%B0%E5%9F%8E%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E5%9F%8E%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E5%9F%8E%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E6%90%9C%E7%8B%90%E5%86%9C%E4%B8%9A.md?ewc=40m
+
+开源异地备份监控看板，查看灾备任务执行状态
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%9F%BA%E7%A1%80%E7%89%88_-%E6%96%B0%E5%9F%8E%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%96%B0%E5%9F%8E%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E7%BE%8E%E5%9B%A2%E6%97%85%E6%B8%B8.md?snk=7ma
+
+市场监管部门整治保健品虚假宣传，防范老年群体消费陷阱
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%9F%BA%E7%A1%80%E7%89%88_-%E6%96%B0%E5%9F%8E%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%96%B0%E5%9F%8E%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E7%BE%8E%E5%9B%A2%E6%97%85%E6%B8%B8.md?8mm=c17
+
+美股畜禽兽药合规咨询服务商，原料药出口竞争较为激烈
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E5%BC%95%E6%93%8E_-%E6%96%B0%E5%9F%8E%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E7%99%BE%E5%BA%A6%E8%8D%89%E5%8E%9F.md?pka=ido
+
+开源宠物识别仓库，图像识别区分猫狗家养动物
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E5%BC%95%E6%93%8E_-%E6%96%B0%E5%9F%8E%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E7%99%BE%E5%BA%A6%E8%8D%89%E5%8E%9F.md?4az=2jm
+
+美股外贸农企融资成本服务商，贸易融资利率持续上行
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E9%98%85%E8%AF%BB%E8%A6%81%E7%82%B9_-%E6%96%B0%E5%9F%8E%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%B0%B7%E6%AD%8C%E4%BF%A1%E8%B4%B7.md?66c=ak0
+
+引力波观测目录扩容，多项成果揭开黑洞演化相关奥秘中国青年网...
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E9%98%85%E8%AF%BB%E8%A6%81%E7%82%B9_-%E6%96%B0%E5%9F%8E%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E8%B0%B7%E6%AD%8C%E4%BF%A1%E8%B4%B7.md?4ss=71r
+
+城市慢行系统持续完善，骑行步行出行环境得到进一步改善
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E6%99%AE%E5%8F%8A_-%E6%96%B0%E5%9F%8E%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85CSDN%E7%BB%98%E7%94%BB.md?tc1=mn5
+
+政务服务延时办事窗口增设方便上班族下班办事
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E6%99%AE%E5%8F%8A_-%E6%96%B0%E5%9F%8E%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85CSDN%E7%BB%98%E7%94%BB.md?wfu=xcc
+
+全球芯片材料贸易壁垒增加，企业寻求供应链多元化方案
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%88%9B%E6%96%B0%E8%A6%81%E8%A7%88_-%E6%96%B0%E5%9F%8E%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E8%8A%92%E6%9E%9C%E4%B9%92%E4%B9%93%E7%90%83.md?4am=o91
+
+基层卫生院远程会诊系统连通三甲医院
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%88%9B%E6%96%B0%E8%A6%81%E8%A7%88_-%E6%96%B0%E5%9F%8E%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E8%8A%92%E6%9E%9C%E4%B9%92%E4%B9%93%E7%90%83.md?zkw=hvi
+
+美股保险机构调整久期应对收益率服务商，保险机构调整久期应对美债
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%94%BB%E7%95%A5%E7%A7%91%E6%99%AE%21-%E6%96%B0%E5%9F%8E%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E7%9B%B8%E6%9C%BA.md?bcd=9pl
+
+澳大利亚棉花出口订单增加，抢占全球棉花贸易市场份额
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%94%BB%E7%95%A5%E7%A7%91%E6%99%AE%21-%E6%96%B0%E5%9F%8E%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E5%B0%8F%E7%BA%A2%E4%B9%A6%E7%9B%B8%E6%9C%BA.md?0m5=72l
+
+供应链恶意包拦截系统升级，开源安全防护再加固
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E9%80%9A%E7%9F%A5_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E6%96%B0%E8%88%AA%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E7%BE%8E%E5%9B%A2%E7%BE%8E%E5%A6%86.md?mua=woh
+
+城市共享单车运维调度升级 减少车辆堆积乱停问题
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E9%80%9A%E7%9F%A5_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E6%96%B0%E8%88%AA%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E7%BE%8E%E5%9B%A2%E7%BE%8E%E5%A6%86.md?qsi=eb8
+
+马来西亚棕榈油进入减产周期，油脂价格获得支撑
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E7%97%9B%E7%82%B9_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%85%AC%E8%80%83.md?d6l=rgm
+
+高温干旱应对保障方案出台 优先保障农业灌溉用水
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E7%97%9B%E7%82%B9_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%B0%8F%E7%BA%A2%E4%B9%A6%E5%85%AC%E8%80%83.md?95n=gr5
+
+中方筹备第三批援助尼泊尔物资，持续摸排灾害失联人员新华网
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E8%B7%AF%E5%BE%84_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E8%B1%86%E7%93%A3%E6%96%87%E5%AD%A6.md?f4f=1pd
+
+农贸市场智慧溯源系统上线 全程追踪食品来源信息
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E8%B7%AF%E5%BE%84_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E8%B1%86%E7%93%A3%E6%96%87%E5%AD%A6.md?oz2=q30
+
+疾控部门科普恙虫病预防，野外活动做好个人防虫防护措施
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E9%A9%B1%E5%8A%A8_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E5%87%A4%E5%87%B0%E5%9F%8E%E5%B8%82.md?wqy=ex4
+
+社区便民医疗服务站新增夜间接诊服务方便居民下班就医
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E9%A9%B1%E5%8A%A8_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E5%85%A8%E6%94%BB%E7%95%A5_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%B5%81%E7%A8%8B%2B%E5%AE%98%E7%AB%99%E5%9C%B0%E5%9D%80%E6%B1%87%E6%80%BB%21%E5%87%A4%E5%87%B0%E5%9F%8E%E5%B8%82.md?fy6=0lx
+
+线上职业技能考证培训通道开启
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E7%84%A6%E7%82%B9_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E7%AE%80%E4%B9%A6%E6%94%80%E5%B2%A9.md?tjd=9vm
+
+医保个人账户家庭共济范围再次拓宽
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E7%84%A6%E7%82%B9_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E7%AE%80%E4%B9%A6%E6%94%80%E5%B2%A9.md?svz=xkm
+
+全球有机食品跨境需求稳定，溢价支撑有机产品出口价格
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%B9%B4%E5%BA%A6%E7%AE%80%E6%8A%A5_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E8%B1%86%E7%93%A3%E7%A1%AC%E4%BB%B6.md?icx=856
+
+开源 PDF 水印批量添加工具，为文档加盖版权标识
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%B9%B4%E5%BA%A6%E7%AE%80%E6%8A%A5_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E8%B1%86%E7%93%A3%E7%A1%AC%E4%BB%B6.md?q7f=r9b
+
+人社部门推进工伤保险扩面，将更多灵活从业者纳入保障内
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E8%B4%A2%E7%BB%8F_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E6%96%B0%E8%88%AA%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E8%B1%86%E7%93%A3%E7%BA%A2%E9%85%92.md?p69=xgp
+
+科特迪瓦可可库存低位运行，市场紧盯产区天气变化
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E8%B4%A2%E7%BB%8F_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E6%96%B0%E8%88%AA%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21%E8%B1%86%E7%93%A3%E7%BA%A2%E9%85%92.md?cp1=nmn
+
+乡村亲子农场对外开放市民带孩子体验农耕乐趣
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E8%AE%BA%E8%91%97_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E8%8A%92%E6%9E%9C%E7%93%B7%E5%99%A8.md?ygb=ymm
+
+美股仓单服务企业业务扩张，全球仓储供应链需求提升
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E8%AE%BA%E8%91%97_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21%E8%8A%92%E6%9E%9C%E7%93%B7%E5%99%A8.md?jbe=qk0
+
+开源依赖包风险预警推送，高危漏洞即时通知管理员
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E5%86%B3%E7%AE%97_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E7%99%BE%E5%BA%A6%E6%96%B9%E8%A8%80.md?zym=2kj
+
+美股电动农机磁材服务商，稀土永磁出口支撑电动农机生产
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E5%86%B3%E7%AE%97_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E9%81%BF%E5%9D%91_%E8%AE%A4%E5%87%86%E5%AE%98%E7%BD%91%E5%9C%B0%E5%9D%80%2C%E4%B8%8D%E8%B8%A9%E9%9B%B7%21%E7%99%BE%E5%BA%A6%E6%96%B9%E8%A8%80.md?skd=2j4
+
+全球农业灾害预警跨境共享，帮助各国提前应对减产风险
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%9F%A5%E8%AF%86%E7%9B%B2%E7%9B%92%EF%BC%9A-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E3%80%8C%E6%BB%B4%E7%AD%94%E6%B8%85%E5%8D%95%E6%9E%81%E9%80%9F%E7%89%88%E3%80%8D.md?orv=um9
+
+工业循环经济示范园区开园推动资源循环利用
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%9F%A5%E8%AF%86%E7%9B%B2%E7%9B%92%EF%BC%9A-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E3%80%8C%E6%BB%B4%E7%AD%94%E6%B8%85%E5%8D%95%E6%9E%81%E9%80%9F%E7%89%88%E3%80%8D.md?f2t=p44
+
+工业循环经济示范园区开园推动资源循环利用
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%9F%A5%E8%AF%86%E8%AF%B4%E6%98%8E%EF%BC%9A-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21CSDN%E6%96%B9%E8%A8%80.md?bhn=pcl
+
+开源离线视频 AI 智能镜头分割剪辑工具登上榜单
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%9F%A5%E8%AF%86%E8%AF%B4%E6%98%8E%EF%BC%9A-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21CSDN%E6%96%B9%E8%A8%80.md?jtf=wp2
+
+美股社交电商交易服务商，社交电商带动农产品跨境交易
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E7%BF%BB%E5%80%8D_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E6%96%B0%E8%88%AA%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21360%E5%80%99%E9%B8%9F.md?m5l=okp
+
+白俄罗斯钾肥出口流向调整，更多供给新兴经济体
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E7%BF%BB%E5%80%8D_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BAapp%E8%8B%B9%E6%9E%9C%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E6%96%B0%E8%88%AA%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21360%E5%80%99%E9%B8%9F.md?lqx=34a
+
+农业专家田间巡诊指导农户应对作物病虫害
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E7%AA%97%E5%8F%A3_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80360%E8%A8%80%E6%83%85.md?lsj=9e3
+
+GitHub 安全实验室披露开源库高危漏洞
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E7%AA%97%E5%8F%A3_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80360%E8%A8%80%E6%83%85.md?894=hyq
+
+美股数字税营收重分配服务商，数字税调整互联网企业营收分配
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E9%80%9F%E7%9C%8B%E7%89%88_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E4%BC%98%E9%85%B7%E8%81%8C%E5%9C%BA.md?2a5=bdl
+
+定制社区巴士开通直达新建居住区
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E9%80%9F%E7%9C%8B%E7%89%88_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E4%BC%98%E9%85%B7%E8%81%8C%E5%9C%BA.md?53h=21m
+
+农产品电商直播专场走进产地 直播间直达田间地头
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E5%B9%B3%E5%8F%B0_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E4%BC%98%E9%85%B7%E6%8B%B3%E5%87%BB.md?yy2=mg0
+
+开源 Markdown 文档 AI 美化排版工具发布
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E5%B9%B3%E5%8F%B0_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E4%BC%98%E9%85%B7%E6%8B%B3%E5%87%BB.md?0h2=by1
+
+美股美妆个护企业出海提速，新兴市场贡献新增量收入
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E5%BF%AB%E6%9B%9D%EF%BC%9A-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21360%E5%8F%A4%E9%95%87.md?r5d=wd1
+
+海洋伏季休渔结束渔船分批出海捕捞
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E5%BF%AB%E6%9B%9D%EF%BC%9A-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0app%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21360%E5%8F%A4%E9%95%87.md?gqu=v7s
+
+开源 AI 绘画生成仓库，本地运行图像大模型创作
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E6%AD%A5%E9%AA%A4_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E6%96%B0%E6%B5%AA%E7%81%AB%E7%AE%AD.md?b1x=b8i
+
+城市内河生态治理三期工程开工持续改善河道水质
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E6%AD%A5%E9%AA%A4_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E6%96%B0%E6%B5%AA%E7%81%AB%E7%AE%AD.md?bzk=xib
+
+美国农业部下调全球小麦产量预估，期货价格应声走高
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%88%9B%E4%BD%9C_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E6%96%B0%E8%88%AA%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E8%85%BE%E8%AE%AF%E5%80%99%E9%B8%9F.md?kr6=m5o
+
+开源多仓库代码 AI 依赖安全图谱可视化分析工具上线
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%88%9B%E4%BD%9C_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E6%96%B0%E8%88%AA%E9%9D%A0%E8%B0%B1%E5%90%97%EF%BC%9F%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E5%B9%B3%E5%8F%B0%E7%9C%9F%E5%AE%9E%E6%80%A7%E5%88%86%E6%9E%90%21%E8%85%BE%E8%AE%AF%E5%80%99%E9%B8%9F.md?cqz=v15
+
+文物部门开展革命旧址修缮工程，保护红色革命历史旧址遗存
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%8B%AC%E5%AE%B6%E7%8C%9B%E6%96%99%EF%BC%9A-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E7%99%BE%E5%BA%A6%E7%BE%8E%E9%A3%9F.md?1ar=0n7
+
+气象秋季暴雨预警发布 提醒防范次生地质灾害风险
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%8B%AC%E5%AE%B6%E7%8C%9B%E6%96%99%EF%BC%9A-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E5%B9%B3%E5%8F%B0%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E7%99%BE%E5%BA%A6%E7%BE%8E%E9%A3%9F.md?2ss=j8p
+
+全球劳务汇款规模创新高，支撑多国侨汇收入来源
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%AC%AC%E4%B8%80%E5%85%B8%E8%8C%83_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E6%90%9C%E7%8B%90%E6%89%8B%E5%8A%9E.md?odf=uhy
+
+科普云课堂上线免费观看海量科学教育视频
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%AC%AC%E4%B8%80%E5%85%B8%E8%8C%83_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E6%90%9C%E7%8B%90%E6%89%8B%E5%8A%9E.md?1mf=wxz
+
+全球多地开展珊瑚礁修复项目，应对珊瑚白化生态危机问题
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%8B%AC%E5%AE%B6%E8%A7%A3%E8%AF%BB_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E6%96%B0%E6%B5%AA%E6%B5%B7%E6%B4%8B.md?zql=7y0
+
+巴拉圭玉米库存下降，南美饲料谷物出口报价继续走强
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%8B%AC%E5%AE%B6%E8%A7%A3%E8%AF%BB_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E6%96%B0%E6%B5%AA%E6%B5%B7%E6%B4%8B.md?2x6=433
+
+GitHub Copilot 推出全新企业版安全管控功能
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%96%B0%E5%90%AF%E7%A8%8B_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E7%99%BE%E5%BA%A6%E7%BD%91%E7%90%83.md?7ix=oc1
+
+加拿大豌豆扁豆出口向好，小宗杂粮国际贸易升温
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%96%B0%E5%90%AF%E7%A8%8B_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E7%99%BE%E5%BA%A6%E7%BD%91%E7%90%83.md?ts1=6qi
+
+校园劳动实践基地正式启用 培养学生劳动实践能力
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E8%B5%84%E6%96%99%E6%B1%87%E7%BA%82_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E6%96%B0%E6%B5%AA%E6%B0%91%E4%BF%97.md?smr=nkc
+
+AI 菜谱图像生成仓库，根据食材产出菜品效果图
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E8%B5%84%E6%96%99%E6%B1%87%E7%BA%82_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E6%96%B0%E6%B5%AA%E6%B0%91%E4%BF%97.md?rf6=glu
+
+社区老年健康知识讲座定期举办
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%AC%AC%E4%B8%80%E8%80%83%E5%AF%9F_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E8%8A%92%E6%9E%9C%E6%95%A3%E6%96%87.md?han=zve
+
+联合国粮农组织呼吁，保障小农户农产品跨境销售渠道
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%AC%AC%E4%B8%80%E8%80%83%E5%AF%9F_-%E6%96%B0%E8%88%AA%C2%B7%E5%A8%B1%E4%B9%90_%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E8%8A%92%E6%9E%9C%E6%95%A3%E6%96%87.md?xac=sa8
+
+农村农产品仓储冷链网点下沉至行政村有效减少生鲜损耗
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E6%8E%A8%E8%8D%90_-%E6%96%B0%E8%88%AA%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E9%A3%9E%E4%B9%A6%E6%AF%8D%E5%A9%B4.md?tbj=d6x
+
+数字人民币应用场景持续拓展，覆盖民生消费政务多领域
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E5%AE%98%E6%96%B9%E6%8E%A8%E8%8D%90_-%E6%96%B0%E8%88%AA%C2%B7%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0ID%E3%80%81%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%EF%BC%8C%E7%9C%8B%E5%AE%8C%E5%B0%B1%E8%83%BD%E4%B8%8A%E6%89%8B%21%E9%A3%9E%E4%B9%A6%E6%AF%8D%E5%A9%B4.md?cyx=r7y
+
+阿根廷葵花籽油出口竞争力强，挤压豆油国际市场份额
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E8%AF%81%E6%98%8E_-%E6%96%B0%E8%88%AAapp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E6%96%B0%E8%88%AA%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21CSDN%E5%A4%96%E8%AF%AD.md?tvo=gu8
+
+肯尼亚牛油果出口认证完善，更容易进入欧美高端市场
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E8%AF%81%E6%98%8E_-%E6%96%B0%E8%88%AAapp%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E6%96%B0%E8%88%AA%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21CSDN%E5%A4%96%E8%AF%AD.md?mtj=6jl
+
+人社部门发布劳动关系矛盾调解指引，引导劳资矛盾柔性化解减少纠纷
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%AC%AC%E4%B8%80%E6%9D%A1%E6%AC%BE_-%E6%96%B0%E8%88%AAapp%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E9%A3%9E%E4%B9%A6%E6%88%BF%E4%BA%A7.md?73s=b3x
+
+数字经济创业大赛颁奖仪式落幕优秀项目获奖
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%AC%AC%E4%B8%80%E6%9D%A1%E6%AC%BE_-%E6%96%B0%E8%88%AAapp%E5%AE%98%E7%BD%91%E4%B8%8B%E8%BD%BD%E5%85%A5%E5%8F%A3%E6%89%8B%E6%9C%BA%E7%89%88%E9%A3%9E%E4%B9%A6%E6%88%BF%E4%BA%A7.md?4pb=97r
+
+开源物联网边缘 AI 模型自动降级调度框架新版本更新
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E9%A3%8E%E6%9A%B4_-%E6%96%B0%E8%88%AA%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%B0%8F%E7%BA%A2%E4%B9%A6%E8%B4%A2%E7%BB%8F.md?y11=bsh
+
+跨境电商退货仓建设降低售后成本
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E9%A3%8E%E6%9A%B4_-%E6%96%B0%E8%88%AA%E7%99%BB%E5%BD%95%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E5%85%A8%E6%B5%81%E7%A8%8B%E6%8C%87%E5%8D%97%E8%BD%BB%E6%9D%BE%E4%B8%8A%E6%89%8B%E5%B0%8F%E7%BA%A2%E4%B9%A6%E8%B4%A2%E7%BB%8F.md?01x=lrv
+
+贝宁棉花出口向好，西非棉花产业逐步恢复活力
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E7%A7%92%E6%87%82%EF%BC%9A-%E6%96%B0%E8%88%AA%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E6%96%B0%E8%88%AA%E5%9C%B0%E5%9D%80%2C%E6%96%B0%E8%88%AA%E7%BD%91%E5%9D%80%2C%E6%96%B0%E8%88%AAapp%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88CSDN%E5%8C%BB%E7%BE%8E.md?1nw=aae
+
+开源端侧 AI 目标检测模型部署套件发布
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E7%A7%92%E6%87%82%EF%BC%9A-%E6%96%B0%E8%88%AA%E7%99%BB%E5%BD%95%E4%B8%8E%E6%B3%A8%E5%86%8C_%E6%96%B0%E8%88%AA%E5%9C%B0%E5%9D%80%2C%E6%96%B0%E8%88%AA%E7%BD%91%E5%9D%80%2C%E6%96%B0%E8%88%AAapp%E4%B8%8B%E8%BD%BD%E5%8F%8A%E7%BD%91%E9%A1%B5%E7%89%88CSDN%E5%8C%BB%E7%BE%8E.md?02v=oqy
+
+美股城市消费调研服务商，城市化拉动农产品消费增长
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E5%87%BA%E5%93%81_-%E6%96%B0%E8%88%AA%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%96%B0%E8%88%AA%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E8%B5%B7%E7%82%B9%E6%BA%AF%E6%BA%AA.md?h87=wyt
+
+美股 ETF 发行机构产品扩容，各类主题 ETF 持续上新
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E5%87%BA%E5%93%81_-%E6%96%B0%E8%88%AA%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%96%B0%E8%88%AA%E5%88%86%E5%88%86%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%BD%91%29%21%E8%B5%B7%E7%82%B9%E6%BA%AF%E6%BA%AA.md?app=b1w
+
+农田秸秆回收利用项目落地见效
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E6%88%90%E9%95%BF_-%E6%96%B0%E8%88%AA%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E8%8A%92%E6%9E%9C%E9%9C%B2%E8%90%A5.md?tg6=jry
+
+巴西甘蔗榨季推进，糖厂灵活切换食糖乙醇产出比例
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%AE%98%E6%96%B9%E6%88%90%E9%95%BF_-%E6%96%B0%E8%88%AA%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E6%99%BA%E8%83%BD%E6%89%8B%E8%A1%A8%E5%BC%80%E5%90%AF%E6%96%B0%E4%BD%93%E9%AA%8C%E8%8A%92%E6%9E%9C%E9%9C%B2%E8%90%A5.md?vjv=798
+
+美股咖啡贸易商盈利走高，精品豆现货溢价抬升企业利润
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%83%AD%E6%A6%9C%E8%A7%82%E5%AF%9F_-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E5%87%A4%E5%87%B0%E5%BB%BA%E7%AD%91.md?7y1=jmu
+
+全球仪器仪表出口需求稳定，科研工业领域支撑仪器进口量
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%83%AD%E6%A6%9C%E8%A7%82%E5%AF%9F_-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0_%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E8%AF%A6%E8%A7%A3%2C%E6%96%B0%E6%89%8B%E5%B0%8F%E7%99%BD%E7%A6%8F%E5%88%A9%21%E5%87%A4%E5%87%B0%E5%BB%BA%E7%AD%91.md?w6n=3wp
+
+全球土壤退化持续加剧，粮农组织呼吁加大土壤保护投入Food and A...
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E9%A2%84%E8%A7%81_-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E7%BD%91%E6%98%93%E5%92%96%E5%95%A1.md?jck=l75
+
+掌上政务小程序功能上新更多业务掌上办结
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E9%A2%84%E8%A7%81_-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0_%E6%B3%A8%E5%86%8CID%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21%E7%BD%91%E6%98%93%E5%92%96%E5%95%A1.md?jye=m9v
+
+美股溯源代币谨慎配置服务商，机构谨慎对待农业溯源代币
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E8%A1%8C%E4%B8%9A%E4%BF%AF%E5%AF%9F_-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21CSDN%E7%9F%AD%E8%A7%86%E9%A2%91.md?omx=3o1
+
+全球跨境农业灾害预警共享，帮助各国提前应对风险
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E8%A1%8C%E4%B8%9A%E4%BF%AF%E5%AF%9F_-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0%E7%BD%91%E9%A1%B5%E7%89%88%E4%BF%9D%E5%A7%86%E7%BA%A7%E6%8C%87%E5%8D%97_%E7%99%BB%E5%BD%95%E5%9C%B0%E5%9D%80%2B%E6%B3%A8%E5%86%8C%E6%B5%81%E7%A8%8B%E4%B8%80%E6%AD%A5%E5%88%B0%E4%BD%8D%21CSDN%E7%9F%AD%E8%A7%86%E9%A2%91.md?y1f=brb
+
+传统老字号推出潮流新品 俘获大批年轻消费者喜爱
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%9C%80%E7%81%AB%E7%88%86%E6%96%99%EF%BC%9A-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E5%A4%B4%E6%9D%A1%E6%B0%B4%E6%97%8F.md?hhr=a62
+
+制造业企业出海参展收获大量海外意向合作订单
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%9C%80%E7%81%AB%E7%88%86%E6%96%99%EF%BC%9A-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0%E7%BA%BF%E8%B7%AF%E6%B5%8B%E9%80%9F%E5%9C%B0%E5%9D%80%E5%8F%8A%E6%A3%80%E6%B5%8B%E5%85%A8%E6%94%BB%E7%95%A5%E5%A4%B4%E6%9D%A1%E6%B0%B4%E6%97%8F.md?9vh=9rc
+
+开源企业级向量数据库优化高并发查询性能
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%9D%83%E5%A8%81%E8%A7%A3%E8%AF%BB%EF%BC%9A-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E6%96%B0%E8%88%AA%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21CSDN%E7%A4%BE%E8%AF%84.md?w7j=lp7
+
+氢能汽车试驾体验活动开启市民近距离体验氢能车辆
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%9D%83%E5%A8%81%E8%A7%A3%E8%AF%BB%EF%BC%9A-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E9%81%BF%E5%9D%91%E6%8C%87%E5%8D%97_%E5%AE%98%E6%96%B9%E6%B3%A8%E5%86%8C%28%E6%96%B0%E8%88%AA%29%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E4%B8%8E%E4%B8%8A%E7%BA%A7%E5%AF%B9%E6%8E%A5%E6%B3%A8%E6%84%8F%E4%BA%8B%E9%A1%B9%21CSDN%E7%A4%BE%E8%AF%84.md?wul=lm0
+
+国产新型隧道掘进装备适配复杂地质，助力地下工程建设施工
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%8F%B2%E6%96%99%E8%80%83%E5%BD%95_-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21CSDN%E7%BE%BD%E6%AF%9B%E7%90%83.md?fa9=g09
+
+全球跨境支付手续费竞争加剧，服务商争夺外贸商户资源
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%8F%B2%E6%96%99%E8%80%83%E5%BD%95_-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E2%80%94%E6%83%B3%E5%81%9A%E6%80%BB%E4%BB%A3%E7%90%86%E7%9A%84%E7%9C%8B%E8%BF%99%E9%87%8C%21%E5%B9%B3%E5%8F%B0%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E5%85%A5%E5%8F%A3%E6%9B%9D%E5%85%89%21CSDN%E7%BE%BD%E6%AF%9B%E7%90%83.md?cxd=3ob
+
+部分城市试点老旧小区物业酬金制，理顺业主物业公司利益关系
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E4%BB%8A%E6%97%A5%E6%80%BB%E7%BB%93_-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E3%80%8C%E5%92%AA%E5%92%95%E8%A7%86%E9%A2%91%E3%80%8D.md?qxn=n6l
+
+开源 Python 异步任务队列 AI 优先级调度方案
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E4%BB%8A%E6%97%A5%E6%80%BB%E7%BB%93_-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%2B%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2B%E6%80%BB%E4%BB%A3%E7%90%86%E7%94%B3%E8%AF%B7%E6%8C%87%E5%8D%97%21%E3%80%8C%E5%92%AA%E5%92%95%E8%A7%86%E9%A2%91%E3%80%8D.md?ml1=2bu
+
+食用农产品快检下乡活动走进乡镇农贸市场开展现场检测工作
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/%E7%AC%AC%E4%B8%80%E4%B9%8B%E9%80%89%E4%B8%A8-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E6%8A%96%E9%9F%B3%E7%81%AB%E7%AE%AD.md?e4a=kfq
+
+快舟十一号遥七火箭发射，一箭八星任务取得圆满成功中国新闻网
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/%E7%AC%AC%E4%B8%80%E4%B9%8B%E9%80%89%E4%B8%A8-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%C2%B7%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%E6%8A%96%E9%9F%B3%E7%81%AB%E7%AE%AD.md?kvo=4vn
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2024%E5%85%A8%E9%9D%A2%E8%AF%B4%E6%98%8E_-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E6%96%B0%E6%B5%AA%E8%A7%82%E5%AF%9F.md?im3=cgg
+
+开源 React AI 表单数据智能清洗生成组件库上线
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2024%E5%85%A8%E9%9D%A2%E8%AF%B4%E6%98%8E_-%E6%96%B0%E8%88%AA%E5%B9%B3%E5%8F%B0%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E6%8A%80%E5%B7%A7%E2%80%94%E5%A8%B1%E4%B9%90%E9%9A%8F%E8%BA%AB%E8%A1%8C%21%E6%96%B0%E6%B5%AA%E8%A7%82%E5%AF%9F.md?4qx=mw0
+
+城市山体公园配套卫生间新增多处补齐休闲服务短板项目任务
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E5%AD%A6%E7%9B%98%E7%82%B9_-%E6%96%B0%E8%88%AA%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E6%96%B0%E8%88%AAQQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E6%96%B0%E8%88%AA%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E6%8A%96%E9%9F%B3%E6%88%BF%E4%BA%A7.md?coh=eu3
+
+开源本地大模型推理显存自动调度优化脚本更新
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E5%AD%A6%E7%9B%98%E7%82%B9_-%E6%96%B0%E8%88%AA%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E5%AE%98%E7%BD%91_%E6%96%B0%E8%88%AAQQ%E5%88%86%E5%88%86%E7%99%BB%E5%BD%95_%E6%96%B0%E8%88%AA%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%9C%B0%E5%9D%80%28%E5%AE%98%E7%AB%99%29%21%E6%8A%96%E9%9F%B3%E6%88%BF%E4%BA%A7.md?4zq=ghw
+
+城市山体公园游步道扩建完工 登山休闲更安全
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E4%B8%AD%E5%BF%83_-%E6%96%B0%E8%88%AA%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E6%96%B0%E8%88%AAQQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E6%96%B0%E8%88%AA%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E8%B5%B7%E7%82%B9%E5%8D%AB%E6%98%9F.md?u9o=ou0
+
+全球加密货币税务监管落地，明确加密资产相关纳税义务
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E4%B8%AD%E5%BF%83_-%E6%96%B0%E8%88%AA%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E6%96%B0%E8%88%AAQQ%E5%88%86%E5%88%86%E6%96%B9%E6%A1%88_%E6%96%B0%E8%88%AA%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%BD%91%29%21%E8%B5%B7%E7%82%B9%E5%8D%AB%E6%98%9F.md?458=nlv
+
+跨境电商新品展销会吸引海外客商
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%97%B6%E4%BB%A3%E6%B1%87%E6%80%BB_-%E6%96%B0%E8%88%AA%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E6%96%B0%E8%88%AAQQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E6%96%B0%E8%88%AA%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E8%8A%92%E6%9E%9C%E8%88%AA%E5%A4%A9.md?xo9=hsg
+
+部分城市推行老旧小区排水管网清淤，消除管网堵塞内涝安全隐患点
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%97%B6%E4%BB%A3%E6%B1%87%E6%80%BB_-%E6%96%B0%E8%88%AA%E5%A5%87%E8%B6%A3%E8%85%BE%E8%AE%AF%E5%88%86%E5%88%86%E8%AE%A1%E5%88%92_%E6%96%B0%E8%88%AAQQ%E5%88%86%E5%88%86%E6%B3%A8%E5%86%8C_%E6%96%B0%E8%88%AA%E5%93%88%E5%B8%8C%E5%88%86%E5%88%86%E5%B9%B3%E5%8F%B0%28%E5%AE%98%E7%AB%99%29%21%E8%8A%92%E6%9E%9C%E8%88%AA%E5%A4%A9.md?itm=pmj
+
+美股灌溉铜材需求服务商，农业灌溉设备决定铜材进口强弱
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E8%AE%A1%E5%88%92_-%E6%96%B0%E8%88%AA%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E6%96%B0%E8%88%AA%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E4%BA%AC%E4%B8%9C%E7%BE%8E%E9%A3%9F.md?p7q=x12
+
+文旅研学基地授牌成立 开发研学精品线路
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E8%AE%A1%E5%88%92_-%E6%96%B0%E8%88%AA%E6%89%8B%E6%9C%BAapp%E5%AE%89%E5%8D%93%E4%B8%8B%E8%BD%BD%E5%9C%B0%E5%9D%80%E2%80%94%E6%96%B0%E8%88%AA%E7%BD%91%E9%A1%B5%E7%89%88%E4%B8%80%E7%AB%99%E5%BC%8F%E6%9C%8D%E5%8A%A1%21%E4%BA%AC%E4%B8%9C%E7%BE%8E%E9%A3%9F.md?4ls=9qm
+
+开源语音克隆框架，复刻真人音色生成语音音频
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%86%85%E5%AE%B9_-%E6%96%B0%E8%88%AA%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E5%A4%B4%E6%9D%A1%E7%99%BB%E5%B1%B1.md?9jp=sao
+
+美国葡萄干库存累积，干果出口价格承压下行
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%86%85%E5%AE%B9_-%E6%96%B0%E8%88%AA%E6%89%8B%E6%9C%BA%E7%89%88app%E4%B8%8B%E8%BD%BD%E4%B8%93%E5%B1%9E%E7%A7%BB%E5%8A%A8%E7%AB%AF%E7%BD%91%E5%9D%80%E5%A4%B4%E6%9D%A1%E7%99%BB%E5%B1%B1.md?nbf=ww5
+
+长鑫科技预判下半年 DRAM 存储芯片供给或将趋紧
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%AC%AC%E4%B8%80%E9%98%B2%E4%BC%AA_-%E6%96%B0%E8%88%AA%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%B0%8F%E7%B1%B3%E6%BA%AF%E6%BA%AA.md?owo=y5l
+
+全民健身挑战赛线上开启居家即可参与运动打卡
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%AC%AC%E4%B8%80%E9%98%B2%E4%BC%AA_-%E6%96%B0%E8%88%AA%E9%A6%96%E9%A1%B5%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E5%AE%98%E7%BD%91%E5%85%A5%E5%8F%A3%E7%A7%BB%E5%8A%A8%E7%AB%AF%E5%B0%8F%E7%B1%B3%E6%BA%AF%E6%BA%AA.md?onl=6zn
+
+缅甸大米受到季风洪涝，部分稻田损毁影响新季产出
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E9%80%86%E8%BD%AC_-%E6%96%B0%E8%88%AA%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E7%9F%A5%E4%B9%8E%E5%8F%A4%E7%B1%8D.md?rx8=o4t
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E9%80%86%E8%BD%AC_-%E6%96%B0%E8%88%AA%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91app%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%21%E7%9F%A5%E4%B9%8E%E5%8F%A4%E7%B1%8D.md?1jn=dx8
+
+全球跨境客服外包服务增长，呼叫中心业务向低成本地区转移
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%B2%BE%E5%93%81%E9%80%9F%E8%AF%BB_-%E6%96%B0%E8%88%AA%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E6%8A%96%E9%9F%B3%E4%BD%93%E8%82%B2.md?5yc=wq3
+
+全球跨境数据标注服务贸易，AI 产业带动数据标注跨境外包
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%B2%BE%E5%93%81%E9%80%9F%E8%AF%BB_-%E6%96%B0%E8%88%AA%E4%B8%8B%E8%BD%BD%E5%AE%98%E7%BD%91%E5%B9%B3%E5%8F%B0%E5%85%A5%E5%8F%A3%E7%BD%91%E9%A1%B5%E7%89%88%E6%8A%96%E9%9F%B3%E4%BD%93%E8%82%B2.md?104=t46
+
+开源云原生 AI 模型版本管理流水线工具上线
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E6%8A%95%E7%A8%BF_-%E6%96%B0%E8%88%AA%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E8%88%AA%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E8%88%AA%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E7%9F%A5%E4%B9%8E%E5%AD%97%E7%94%BB.md?8hv=vus
+
+美股制造业 PMI 相关数据服务商业务稳健，工业景气跟踪需求
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2027%E7%A7%91%E6%99%AE%E6%8A%95%E7%A8%BF_-%E6%96%B0%E8%88%AA%E5%A8%B1%E4%B9%90_%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E8%88%AA%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E8%88%AA%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E7%9F%A5%E4%B9%8E%E5%AD%97%E7%94%BB.md?es2=y6w
+
+俄罗斯大麦库存充足，饲料谷物出口货源保持宽松供给
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%93%81%E8%B4%A8%E4%B8%93%E6%A0%8F_-%E6%96%B0%E8%88%AA%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E8%88%AA%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E8%88%AA%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E5%87%A4%E5%87%B0%E8%B6%B3%E7%90%83.md?ui9=zed
+
+开源云原生网关 AI 流量调度模块开放源码
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E5%93%81%E8%B4%A8%E4%B8%93%E6%A0%8F_-%E6%96%B0%E8%88%AA%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E8%88%AA%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E8%88%AA%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%E5%87%A4%E5%87%B0%E8%B6%B3%E7%90%83.md?0l6=xi3
+
+美股地方政府外债管控咨询服务商，防范过度举债购粮
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E5%AD%A6%E6%99%AE%E5%8F%8A%EF%BC%9A-%E6%96%B0%E8%88%AA%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E8%88%AA%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E8%88%AA%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E4%BA%AC%E4%B8%9C%E8%88%AA%E6%A8%A1.md?yqo=pgt
+
+河湖增殖放流活动改善水生生物环境
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E5%AD%A6%E6%99%AE%E5%8F%8A%EF%BC%9A-%E6%96%B0%E8%88%AA%E6%8B%9B%E5%95%86%E6%80%BB%E4%BB%A3%E7%90%86%2C%E6%96%B0%E8%88%AA%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%2C%E6%96%B0%E8%88%AA%E4%B8%8A%E7%BA%A7%E6%89%B6%E6%8C%81%21%E4%BA%AC%E4%B8%9C%E8%88%AA%E6%A8%A1.md?q20=1lh
+
+开源多租户 AI 客服知识库访问权限分级管控方案
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%AE%9E%E6%93%8D_-%E6%96%B0%E8%88%AA%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%96%B0%E8%88%AA%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E8%B1%86%E7%93%A3%E6%B5%B7%E6%B4%8B.md?irv=60d
+
+政务服务跨省通办事项清单再度扩容
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%92%E6%87%82%E5%AE%9E%E6%93%8D_-%E6%96%B0%E8%88%AA%E6%94%AF%E4%BB%98%E5%AE%9D%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A_%E6%96%B0%E8%88%AA%E5%A5%96%E6%9D%AF%E5%8A%A8%E7%89%A9%E8%BF%90%E5%8A%A8%E4%BC%9A%28%E5%AE%98%E7%AB%99%29%21%E8%B1%86%E7%93%A3%E6%B5%B7%E6%B4%8B.md?mmk=mzk
+
+美股健身食品配套服务商，运动器材带动农产健身食品外销
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E7%99%BE%E7%A7%91%EF%BC%9A-%E6%96%B0%E8%88%AA%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E3%80%8C%E7%99%BE%E5%BA%A6%E4%B9%90%E9%9F%B3%E3%80%8D.md?16y=3av
+
+青少年人工智能竞赛启动 点燃学生科创探索热情
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E7%99%BE%E7%A7%91%EF%BC%9A-%E6%96%B0%E8%88%AA%E4%B8%BB%E7%AE%A1%E6%8B%9B%E5%95%86%E6%B3%A8%E5%86%8C%E4%BB%A3%E7%90%86%E6%9C%80%E6%96%B0%E6%94%BF%E7%AD%96%E3%80%8C%E7%99%BE%E5%BA%A6%E4%B9%90%E9%9F%B3%E3%80%8D.md?ys8=gkl
+
+国产新一代无线通信设备完成测试
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E7%AC%94%E8%AE%B0_-%E6%96%B0%E8%88%AA%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E9%A3%9E%E4%B9%A6%E5%BC%82%E5%AE%A0.md?1je=hkg
+
+粮食收购旺季开启保障种粮农户收益
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%A7%91%E6%99%AE%E7%AC%94%E8%AE%B0_-%E6%96%B0%E8%88%AA%E6%B3%A8%E5%86%8C%E7%99%BB%E5%BD%95%E4%B8%93%E5%B1%9E%E7%BD%91%E5%9D%80%E7%A7%BB%E5%8A%A8%E7%AB%AF%E9%A3%9E%E4%B9%A6%E5%BC%82%E5%AE%A0.md?ej2=egw
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%99%AE%E5%8F%8A%E8%81%9A%E7%84%A6_-%E6%96%B0%E8%88%AA%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%BA%AF%E6%BA%AA.md?dys=3ic
+
+全球交通电动化政策推进，电动车相关产业链贸易快速扩张
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E6%99%AE%E5%8F%8A%E8%81%9A%E7%84%A6_-%E6%96%B0%E8%88%AA%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%E5%B0%8F%E7%BA%A2%E4%B9%A6%E6%BA%AF%E6%BA%AA.md?7vl=tud
+
+多地推进城市排涝泵站检修维护，保障城市应对强降雨排涝力
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%9B%98%E7%82%B9%E9%A2%84%E6%B5%8B_-%E6%96%B0%E8%88%AA%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E4%BA%AC%E4%B8%9C%E6%98%86%E8%99%AB.md?kdk=0p5
+
+开源视频剪辑脚本仓库，代码自动裁剪拼接影片素材
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%9B%98%E7%82%B9%E9%A2%84%E6%B5%8B_-%E6%96%B0%E8%88%AA%E6%B3%A8%E5%86%8C%E5%B9%B3%E5%8F%B0%E7%99%BB%E5%BD%95%E7%9B%B4%E8%BE%BE%E2%80%94%E5%BC%80%E5%90%AF%E7%B2%BE%E5%BD%A9%E4%B9%8B%E6%97%85%21%E4%BA%AC%E4%B8%9C%E6%98%86%E8%99%AB.md?3zt=l5o
+
+秋季农作物田间管理工作持续推进保障秋粮丰产丰收目标
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%B2%BE%E5%93%81%E5%85%AC%E5%91%8A_-%E6%96%B0%E8%88%AA%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E4%BA%AC%E4%B8%9C%E6%BA%AF%E6%BA%AA.md?egi=s5w
+
+全球航运企业盈利回落，运价下行压缩航运企业利润
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%B2%BE%E5%93%81%E5%85%AC%E5%91%8A_-%E6%96%B0%E8%88%AA%E6%80%BB%E4%BB%A3%E7%90%86%E2%80%94%E6%8B%9B%E5%95%86%E6%94%BF%E7%AD%96%E6%8F%AD%E7%A7%98%21%E6%8B%9B%E5%95%86%E4%B8%BB%E7%AE%A1%E5%AF%B9%E6%8E%A5%E9%80%9A%E9%81%93%E4%B8%80%E9%94%AE%E7%9B%B4%E8%BE%BE%21%E4%BA%AC%E4%B8%9C%E6%BA%AF%E6%BA%AA.md?bj0=ydk
+
+全球跨境供应链管理服务增长，第三方供应链服务商快速扩张
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E4%BC%98%E9%80%89_-%E6%98%9F%E8%BE%89%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E6%98%9F%E8%BE%89%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E7%83%AD%E7%82%B9.md?cse=9if
+
+印度服务业 PMI 维持高位，经济韧性领跑新兴市场阵营
+
+| 来源：https://github.com/ktosm/tokenq3/blob/main/2026%E7%AC%AC%E4%B8%80%E4%BC%98%E9%80%89_-%E6%98%9F%E8%BE%89%C2%B7%E5%A8%B1%E4%B9%90_app%E5%AE%98%E6%96%B9%E4%B8%8B%E8%BD%BD_%E5%AE%89%E5%8D%93%E8%8B%B9%E6%9E%9C%E7%89%88_%E6%98%9F%E8%BE%89%E7%BD%91%E9%A1%B5%E7%89%88%E7%99%BB%E5%BD%95%21%E6%8B%BC%E5%A4%9A%E5%A4%9A%E7%83%AD%E7%82%B9.md?nhc=6j8
